@@ -3,7 +3,7 @@
 Eu sou heitor gulde, sou estudante do mediotec senac, e atualmente vivo em recife-pe 👨🏻‍💻 
 
 - 🚀 Atualmente estou aprendendo:eu estou aprendendo alemão.
-- 💬 Pergunte-me sobre: curto surfar, futebol americano e de rock.
+- 💬 Pergunte-me sobre: curto futebol americano e de rock.
 - 📣 Nós podemos falar em: Português, Ingles.
 
 <div align="center">
